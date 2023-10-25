@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jayprakashrajput
 - 👀 I’m interested in beatiful girls
-- 🌱 I’m currently learning  London
+- 🌱 I’m currently learning mechanism of Chat GPT 18.00 version
 - 💞️ I’m looking to collaborate on Google's CEO
 - 📫 How to reach me from gaganyan 1
 
